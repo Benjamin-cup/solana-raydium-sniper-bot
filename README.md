@@ -10,11 +10,10 @@ If you are satisfied with this, contact me to get the full part of my sniper.
 I think everything will satisfy you.
 Contact Information
 
-Gmail: tom.kinddev@gmail.com
+Gmail: benjamin.bigdev@gmail.com
 
-discord:  @erikerik116
+Telegram: [@SOLBenjaminCup](https://t.me/SOLBenjaminCup)
 
-telegram: @erikerik116
+Discord: [@.benjamincup](https://discord.com/channels/@me/1305610537790476382)
 
-twitter: @erikerikerik116
 After the contact through telegram and discord, then let's continue through other contact ways.
